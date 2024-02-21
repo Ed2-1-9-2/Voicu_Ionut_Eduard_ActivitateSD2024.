@@ -1,0 +1,1 @@
+# Voicu_Ionut_Eduard_ActivitateSD2024.
